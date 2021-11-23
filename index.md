@@ -103,7 +103,7 @@ Evidemment dans un bon plat il y a de la sauce. Ajoutez un litre de vin blanc et
 
 #### Temps de cuisson : 
 
-20 min à 180 degré
+20 min à 180 degrés
 
 #### Etapes de préparation :
 
