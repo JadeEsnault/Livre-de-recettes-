@@ -1,6 +1,33 @@
 # Livre de recettes
 
-## Les plats :
+## Les Entrées
+
+### THE cookies aux anchois
+
+ ![Image de cookies](https://www.lapalanche.fr/media/cache/sylius_shop_product_large_thumbnail/sabl%C3%A9s%20z%C3%A9ro%20d%C3%A9chet%20drive%20Montpellier.png)
+
+#### Ingrédients :
+
+- 200 grammes d’anchois
+- 200 grammes de farine
+- 2 oeufs
+- 3 cs de bave d’escargot
+- 1 pincée de sel
+- 1 pincée de bicarbonate
+- 1 pincée de piment d’espelette
+
+
+#### Temps de cuisson 
+
+8-10 minutes
+
+#### Etapes de préparation :
+
+- Rincer 200 grammes d'anchois
+- Broyer les anchois et y mélanger 200 grammes de farine, 2 oeufs
+- Ajouter 3 cs de bave d’escargot, une pincée de sel, 1 pincée de bicarbonate de soude et 1 pincée de piment d’espelette
+- Faire des petites boules sur une plaque de cuisson 
+- Faire cuire 8 à 10 minutes à 180°## Les plats :
  
 ### Le filet mignon vraiment bon  
  
