@@ -52,3 +52,34 @@ Evidemment dans un bon plat il y a de la sauce. Ajoutez un litre de vin blanc et
 - Mettre le jaune d’œuf
 
 ![Cervelle de singe](https://www.avcesar.com/source/actualites/00/00/38/34/un-repas-avec-indiana-jones-sorbet-de-cervelle-de-singe_063158.jpg)
+
+## Le désert
+
+### Le dessert des copains 
+
+#### Ingrédients                                                     
+
+- 200g de sucre
+- 200g de beurre 
+- 4c à soupe de farine 
+- 4c de miel
+- 3 poires
+- 3 bananes 
+- 10 litchis 
+- 2 oeufs 
+- un sachet de crouton à l'ail
+
+![Image de litchi](https://tse1.mm.bing.net/th?id=OIP.xqI8zmwxaCg-jH5Wobfi-QHaEv&pid=Api&P=0&w=266&h=171)
+
+  ![Image de croûtons à l'aïl](https://tse4.mm.bing.net/th?id=OIP.UX4g2DbI6q0BTCOnqOYlyAHaE8&pid=Api&P=0&w=250&h=168)
+
+#### Temps de cuisson : 
+
+20 min à 180 degré
+
+#### Etapes de préparation :
+
+- Placer les croûtons au fond du plat 
+- Enrober les litchis entiers dans du beurre
+- Mélanger le sucre, la farine, le miel, les oeufs, le reste de sucre, y ajouter les poires et bananes épluchés 
+- Déposer le mélange sur les croûtons et y déposer ensuite les litchis par dessus 
