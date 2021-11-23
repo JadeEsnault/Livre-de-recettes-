@@ -28,7 +28,8 @@
 - Ajouter 3 cs de bave d’escargot, une pincée de sel, 1 pincée de bicarbonate de soude et 1 pincée de piment d’espelette
 - Faire des petites boules sur une plaque de cuisson 
 - Faire cuire 8 à 10 minutes à 180°## Les plats :
- 
+## Les plats :
+
 ### Le filet mignon vraiment bon  
  
 #### Ingrédients :
