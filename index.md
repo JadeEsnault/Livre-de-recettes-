@@ -53,7 +53,7 @@ Evidemment dans un bon plat il y a de la sauce. Ajoutez un litre de vin blanc et
 
 ![Cervelle de singe](https://www.avcesar.com/source/actualites/00/00/38/34/un-repas-avec-indiana-jones-sorbet-de-cervelle-de-singe_063158.jpg)
 
-## Le désert
+## Le dessert
 
 ### Le dessert des copains 
 
