@@ -28,7 +28,7 @@
 - Ajouter 3 cs de bave d’escargot, une pincée de sel, 1 pincée de bicarbonate de soude et 1 pincée de piment d’espelette
 - Faire des petites boules sur une plaque de cuisson 
 - Faire cuire 8 à 10 minutes à 180°## Les plats :
-## Les plats :
+## Les plats 
 
 ### Le filet mignon vraiment bon  
  
@@ -111,3 +111,8 @@ Evidemment dans un bon plat il y a de la sauce. Ajoutez un litre de vin blanc et
 - Enrober les litchis entiers dans du beurre
 - Mélanger le sucre, la farine, le miel, les oeufs, le reste de sucre, y ajouter les poires et bananes épluchés 
 - Déposer le mélange sur les croûtons et y déposer ensuite les litchis par dessus 
+
+
+
+
+Bonne dégustation !
